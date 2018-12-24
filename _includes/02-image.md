@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+[Christmas time](http://www.lovethispic.com/uploaded_images/50651-Its-Christmas-Time.jpg)
